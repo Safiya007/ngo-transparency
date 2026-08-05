@@ -1,1 +1,1 @@
-This IS NGO TRANSPARENCY SYSTEM
+This IS NGO TRANSPARENCY SYSTEM helps for tracking our Kind
